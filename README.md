@@ -1,0 +1,2 @@
+# it-came-from-the-desert-remake-
+Hello sir Josue, last friday I had these players moving by the controls from my keyboard. I pressed save and it said you must exit play mode, so I pressed resume and a couple of things and progressions that I made went away from that click, for now, all I could do was this player in an idle animation, but I hope you can tweak it and fix it. as you can see this texture pack may also come in handy to you, because it was an expensive one that I had received for free.
